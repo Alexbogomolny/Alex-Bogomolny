@@ -1,10 +1,8 @@
-
-Hey! This is a website to describe me :)
-
 ![rsz_1b53ba13f-3ee3-4dc4-ac47-487583c770ff-min](https://user-images.githubusercontent.com/66669165/84355276-518c2200-ab90-11ea-8a8d-bdef6096c77b.jpg)
 
+Hi! My name is Alex Bogomolny. 
 I am from East Brunswick, New Jersey.
-I am currently a Senior at East Brunswick High School and plan on attending Rutgers Business School- New Brunswick in Fall of 2020
+I am currently a Senior at East Brunswick High School and plan on attending Rutgers Business School- New Brunswick in Fall of 2020.
 I have my own podcast available on most platforms called Bogocast.
 This podcast studies people from my town and how their surroundings helped shape them into the person they are today.
 I am a state finalist for Future Business Leaders of America, I played Varsity Football for the school team, and I am the captain of the East Brunswick Soccer Club U-18 Travel Team, and am a former Chess State Champion. 
