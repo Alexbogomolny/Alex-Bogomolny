@@ -14,6 +14,7 @@ MERCH:
 https://shop.spreadshirt.com/bogocast/all
 
 SOCIALS:  
+
 Spotify link: 
 https://open.spotify.com/show/3KFuxis2rWKsm49uUoYMjL?si=jVvAZIHlTaaLOhHV8FbMZA
 
