@@ -11,18 +11,25 @@ I try to be the best person I can be and I hope you enjoy my web page :)
   
   
 MERCH: 
+
 https://shop.spreadshirt.com/bogocast/all
+
+
 
 SOCIALS:  
 
 Spotify link: 
 https://open.spotify.com/show/3KFuxis2rWKsm49uUoYMjL?si=jVvAZIHlTaaLOhHV8FbMZA
 
+
 Twitter: 
 https://twitter.com/alexbogomolny
 
+
 Github :
 https://github.com/Alexbogomolny
+
+
 
 CONTACT ME:
 
