@@ -8,14 +8,18 @@ I am currently a Senior at East Brunswick High School and plan on attending Rutg
 I have my own podcast available on most platforms called Bogocast.
 This podcast studies people from my town and how their surroundings helped shape them into the person they are today.
 I am a state finalist for Future Business Leaders of America, I played Varsity Football for the school team, and I am the captain of the East Brunswick Soccer Club U-18 Travel Team, and am a former Chess State Champion. 
- I have over 200 volunteer hours that range from an adult day care to helping special needs swim.
+I have over 200 volunteer hours that range from an adult day care to helping special needs swim.
 I try to be the best person I can be and I hope you enjoy my web page :)
   
+  
+MERCH: 
+https://shop.spreadshirt.com/bogocast/all
 
-Spotify link
-twitter username: alexbogomolny 
-github username:  alexbogomolny 
+SOCIALS:  
+Spotify link: https://open.spotify.com/show/3KFuxis2rWKsm49uUoYMjL?si=jVvAZIHlTaaLOhHV8FbMZA
+Twitter: https://twitter.com/alexbogomolny
+Github : https://github.com/Alexbogomolny
 
-https://open.spotify.com/show/3KFuxis2rWKsm49uUoYMjL?si=jVvAZIHlTaaLOhHV8FbMZA
-
-
+CONTACT ME:
+Personal Email: alexandernjd@gmail.com
+Business Email: alexbogocast@gmail.com
