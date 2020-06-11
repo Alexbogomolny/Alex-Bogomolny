@@ -1,2 +1,2 @@
-# bogocast
-website to describe me
+# Bogocast
+A website to describe me
