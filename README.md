@@ -17,9 +17,12 @@ https://shop.spreadshirt.com/bogocast/all
 
 SOCIALS:  
 Spotify link: https://open.spotify.com/show/3KFuxis2rWKsm49uUoYMjL?si=jVvAZIHlTaaLOhHV8FbMZA
+
 Twitter: https://twitter.com/alexbogomolny
+
 Github : https://github.com/Alexbogomolny
 
 CONTACT ME:
 Personal Email: alexandernjd@gmail.com
+
 Business Email: alexbogocast@gmail.com
