@@ -16,6 +16,6 @@ Spotify link
 twitter username: alexbogomolny 
 github username:  alexbogomolny 
 
-<iframe src="https://open.spotify.com/embed/show/3KFuxis2rWKsm49uUoYMjL" width="300" height="380" frameborder="0" allowtransparency="true" allow="encrypted-media"></iframe>
+https://open.spotify.com/show/3KFuxis2rWKsm49uUoYMjL?si=jVvAZIHlTaaLOhHV8FbMZA
 
 
