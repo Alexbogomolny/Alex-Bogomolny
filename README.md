@@ -1,7 +1,7 @@
 
 Hey! This is a website to describe me :)
 
- ![] (https://user-images.githubusercontent.com/66669165/84352218-f0158480-ab8a-11ea-849d-62ec82780533.JPG)
+![rsz_1b53ba13f-3ee3-4dc4-ac47-487583c770ff-min](https://user-images.githubusercontent.com/66669165/84355276-518c2200-ab90-11ea-8a8d-bdef6096c77b.jpg)
 
 I am from East Brunswick, New Jersey.
 I am currently a Senior at East Brunswick High School and plan on attending Rutgers Business School- New Brunswick in Fall of 2020
